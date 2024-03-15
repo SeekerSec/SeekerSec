@@ -2,8 +2,6 @@
 
 ###
 
-<img align="right" height="150" src="https://freeimage.host/i/JWrZv6b"  />
-
 ###
 
 <div align="left">
